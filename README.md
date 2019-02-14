@@ -5,7 +5,7 @@ We don't work on projects which has any criteria from below. Our previous works 
 
 1. The design should not have any FEMALE Photographs or Graphics Works.
 2. The design should not have any MUSIC AUDIO or VIDEO.
-* Musice Audio doesn't only include SONGS but it includes any kind of sound made using musical instruments.
+* Music Audio doesn't only include SONGS but it includes any kind of sound made using musical instruments.
 3. No INTEREST or MORTGAGE based application.
 4. Site for promoting any DRUGS.
 5. Site to abuse any RELIGION.
