@@ -1,6 +1,7 @@
 # Terms
 HiCrad 
 Terms &amp; Condition to work with us
+
 We don't work on projects which has any criteria from below. Our previous works support will also be INVALID because of these factors.
 
 1. The design should not have any FEMALE Photographs or Graphics Works.
